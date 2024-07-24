@@ -1,0 +1,1 @@
+# Global-2D-barcode-reader-market-Share-Trend-2024-2030
